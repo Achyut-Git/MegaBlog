@@ -29,7 +29,7 @@ Feel free to reach out to me via email or connect with me on LinkedIn.
 
 ## GitHub Stats
 
-!Your GitHub stats
+!Upcoming GitHub stats
 
 ## Top Languages
 
